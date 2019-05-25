@@ -1,1 +1,0 @@
-# SamuelTenor.github.io
